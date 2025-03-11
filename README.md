@@ -1,5 +1,6 @@
 ## Hi there 👋
-
+拒绝垃圾信息👊丨成为你自己💪
+表象社会中一个孤独的流浪者🏃丨互联网精神📚
 <!--
 **Littlekkid/Littlekkid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
